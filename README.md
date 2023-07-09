@@ -1,1 +1,0 @@
-# gakutosasabe.github.io
